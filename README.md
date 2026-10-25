@@ -16,7 +16,7 @@ kỹ năng giải quyết bài toán và xây dựng những sản phẩm công 
 
 ## Thông tin liên hệ
 - **Email:** [ple99905@gmail.com]
-- **Facebook:** [Trang cá nhân Facebook]https://www.facebook.com/VanGnohp.207)
+- **Facebook:** [Trang cá nhân Facebook]https://www.facebook.com/VanGnohp.207
 - **GitHub:** [Trang GitHub cá nhân](https://github.com/vanphong07)
 
 ## Câu trích dẫn yêu thích
